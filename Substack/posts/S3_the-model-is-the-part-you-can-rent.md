@@ -21,6 +21,6 @@ Here's why ownership matters. You'll probably swap the model at least once. The 
 
 Partners can help you build it. The wheel stays with you.
 
-Saturday I'll make the longer case.
+Next Thursday I'll make the longer case.
 
 Kallol
